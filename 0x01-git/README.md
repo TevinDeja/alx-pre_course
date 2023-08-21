@@ -1,1 +1,1 @@
-Yet to be a software enginering pro
+Yet to be a software engineering pro. Amen
